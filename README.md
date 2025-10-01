@@ -4,6 +4,6 @@ We are dedicated to empowering schools and colleges with complete smart digital 
 
 With innovation at the core, we aim to transform how schools and colleges operate, making education more organized, transparent, and future-ready.
 
-Coming soon…
+Launching soon… Pre-Booking Open.  (Click Here to visit our Pre-Booking Site.)[https://schoolaya.inquirynepal.com]
 
 Follow us to be part of the new wave redefining the digital education ecosystem.
